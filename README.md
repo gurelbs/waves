@@ -1,1 +1,1 @@
-# [waves bg](https://gurelbs.github.io/waves/)]
+# [waves bg](https://gurelbs.github.io/waves/)
